@@ -1,2 +1,0 @@
-# CL-TinTin
-TinTin💕CL
